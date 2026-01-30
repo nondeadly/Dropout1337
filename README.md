@@ -8,7 +8,7 @@ he never delivered.
 - **Claims:** "Aspiring 17 y/o software engineer studying 
   networking & security"
 - **Reality:** Scams clients and ghosts after payment
-- **GitHub:** 581 followers, active repos (to appear legitimate)
+- **GitHub:** 581 followers used to skid tiktok,Hcaptcha and discord (Typical loser without friends)
 
 
 ## Story
